@@ -1,0 +1,2 @@
+# versetka-page
+Amaliyot uchun
